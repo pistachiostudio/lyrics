@@ -1,15 +1,14 @@
-
-Undercurrent
+## Undercurrent
 track by Terrapin Audio  
 
 Hareton Salvanini - Só  
 Album: S.P. 73 (Continental/1973)  
   
-hook  
+#### hook  
 今日を生きる 足跡記す 痛みを知る 笑い愛する  
 吸う吐く 呼吸しよう 深呼吸しよう  
 
-K)  
+#### K)  
 money over money  
 金より何？形より愛？堕落してたい  
 欠乏 失うリズム&体温 解凍36度   
@@ -19,7 +18,7 @@ smog 切り裂く情報操作 防災しときましょう自分のear
 存在意義 REAL見失うな  
 足元すくわれてわかる価値観 斜に構えて撃ち込む眉間  
 
-T)  
+#### T)  
 まるで泡のように消えちゃうさだめ  
 ここにあったはずがない なんてよくある  
 そんなもんだろeasy元気だせよ？  
@@ -33,7 +32,7 @@ T)
 うるさい、 目を閉じてfeelしてみな  
 色もない世界で、考えてみな  
 
-B)  
+#### B)  
 無理矢理深呼吸 スイッチ  
 その話なら 置いとく脇  
 Bling back 寄り道見失う帰路  
@@ -46,10 +45,10 @@ Bling back 寄り道見失う帰路
 でも引くハズレくじ  
 効かないごまかし to do the right thing  
 
-hook  
+#### hook  
 今日を生きる 足跡記す 痛みを知る 笑い愛する  
 吸う吐く 呼吸しよう 深呼吸しよう  
 
-K)  
+#### K)  
 ろくに寝てねえ　疲れやつれ 雨に打たれ　全て忘れる  
 good vibes good enough　街に出よう 街に出よう  

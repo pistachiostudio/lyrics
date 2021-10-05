@@ -1,7 +1,7 @@
-Navigate  
+## Navigate  
 track by tajima hal  
   
-K)  
+#### K)  
 お待ちかね待たせたなマイメン  
 まずは乗りなこのbeat train  
 車掌はオレ kyonboyアテンド  
@@ -11,7 +11,7 @@ K)
 high end high more and more  
 さぁピークまで揺られて行こう  
   
-T)  
+#### T)  
 meaotigeちゃかすなmc  
 エクスタシー 気持ちいいのがいい  
 いーことあるなら共有 しょっちゅう集合 住所は神奈川東京  
@@ -22,7 +22,7 @@ freshは当然
 耳元直行便  
 Express  
   
-B)  
+#### B)  
 開くドア any more 駆け込みな  
 指定なし all standing 自由席  
 揺れるレール辿る落とす針  
@@ -32,17 +32,18 @@ B)
 車内の揺れに揺られてステップ  
 地球発ほうき星追い越して  
   
-T)  
+#### T)  
 it is more 止まる事知らないtrain  
 
-B)  
+#### B)  
 it is more Next next rhythm for  
-K)  
+
+#### K)  
 it is more オレら雲の上  
 
 つかない検討you ready？ endless!!!  
   
-hook  
+#### hook  
 Mic使って君をナビゲート  
 How hi乗りな yo beat train  
 定刻通り君の街 最終ベル鳴らせ汽笛  
