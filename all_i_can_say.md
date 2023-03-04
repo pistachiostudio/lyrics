@@ -1,9 +1,11 @@
 ## All I Can Say
+
 Track by P’s Undah Muhn Sisters
 
 Sly, Slick & Wicked - Sho'Nuff
 
 #### Hook
+
 どこかいつのまに  
 テレポート移すこころここにはないよ  
 (Deeeeem)  
@@ -16,6 +18,7 @@ Sly, Slick & Wicked - Sho'Nuff
 ある刺激的なほど冷静に受け止めたいよ  
 
 #### B)
+
 そのお前が誰とどう違う  
 窓ガラス映す姿濁る、  
 ほぼ当たり前に疑うこの  
@@ -33,6 +36,7 @@ Sly, Slick & Wicked - Sho'Nuff
 と思うと今日すでに死んでたのかも  
 
 #### K)
+
 オレはオレでキミはキミ  
 人の数だけある生きる意味  
 顔も違うしボディも違う  
@@ -49,6 +53,7 @@ Sly, Slick & Wicked - Sho'Nuff
 きっかけなら転がるナイトアンドデイ  
 
 #### All)
+
 Hey  
 Get out stand up  
 cmon throw your hands up  
@@ -60,9 +65,10 @@ Cmon throw your hands up
 
 
 #### T)
+
 最近改めて考えた答えはないって  
 ポジティブが最強だってさ  
-だってさおれら明後日
+だってさおれら明後日  
 生きてる死んでるなんて わからない中で  
 不安になったて、つらいだけだろ？  
 fuckな気分は嫌なんだ you kown  
@@ -77,6 +83,7 @@ fuckな気分は嫌なんだ you kown
 そしてこの曲でhopしてみな！  
 
 #### Hook
+
 どこかいつのまに  
 テレポート移すこころここにはないよ  
 (Deeeeem)  
