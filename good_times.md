@@ -1,6 +1,7 @@
 ## Good Times  
 track by Terrapin Audio  
 
+sample:  
 Jewel Bass - In And Out Of Love  
 Album: Malaco Soul Sisters (Malaco/Soulscape/2010)  
 
