@@ -30,4 +30,7 @@ I’m a basくん you know?
 
 #### K)
 
-now loading...
+smoke \*\*\*\* 解禁までは何年？  
+合法ならまた皆で炊いて  
+最低な事も葉巻割いて  
+go homeして咳き込むゴホッ
