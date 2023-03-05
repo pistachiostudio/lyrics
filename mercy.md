@@ -18,9 +18,13 @@ now loading...
 #### H)
 
 全然 平気 take up Marcy  
-You Do not think オーキードーキー  
+You do not think オーキードーキー  
 調子どう?トーキングアバウトミー  
-Black outしてもwow wow ya  
+Black outしてもwow wow ya 
+
+#### Interlude)
+
+now loading...
 
 #### B)
 
@@ -35,7 +39,14 @@ Black outしてもwow wow ya
 
 #### K)
 
-now loading...
+take it easy やっぱ日々busy  
+地道に地味に稼ぐmore money  
+左手に愛　正しき形  
+型にはまりハスリン  
+週5戦闘モード耐える労働  
+待てを知らぬ犬絶えず行動  
+don't believe the hype  
+生で挿入　固め濃いめ油　3MC  
 
 #### T)
 
@@ -43,7 +54,14 @@ now loading...
 
 #### K)
 
-now loading...
+大抵I don't give f\*\*kだぜマイメン  
+普通がよっぽど異常だぜ  
+酸いも甘いも噛み締めたthirty  
+内面外見写し出す鏡  
+bad入ってeveryday落とすよりも  
+カッコつけてeveryday残すanymore  
+懐に忍ばす愛  
+moneyで買えないdream走り続ける
 
 #### H)
 
