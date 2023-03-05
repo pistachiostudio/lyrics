@@ -5,7 +5,7 @@
 It’s like that’s y’all come on y’all  
 Lyrics to go everybody comen  
 Ya chek it that’s y’all comen y’all  
-To the beats y’all he we go  
+To the beats y’all here we go  
 
 #### B)
 
@@ -27,11 +27,29 @@ Bの尻に火がついたのさ Ya know
 
 #### K)
 
-now loading...
+しばらく書けなかったlyricも  
+今じゃ聞こえるだろ離陸音  
+背負わされた自由は重荷さ不自由  
+painにpayしてgainとdeal  
+潜在意識のプールから浮上  
+選択誤れば容赦なく非常  
+じっと待つより実行  
+影のbroにも光を  
+sometimes win sometimes lose  
+信じるのはこの胸のドキドキだけ  
+腰より高いオフショアが往来  
+ハイエナ蹴散らせ  
+OLD SKOOL,ERA,VANS kicks better  
+micからlike GODZILLA  
+感じな良ければhands in air  
+足りない頭で捻り出せ
 
 #### Hook)
 
-now loading...
+Do!!  
+run & runでも疲れてグータラしてたら日が暮れる  
+Mama say ガミガミうっせー  
+I don't give a f\*\*k go around  
 
 #### T)
 
