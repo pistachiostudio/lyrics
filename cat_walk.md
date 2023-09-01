@@ -12,7 +12,15 @@ Can I kick it ?? yes you can
 
 #### T)
 
-now loading...
+Yo
+it's so cool b お袋でHatch
+Classic B Sounds 気ままなラップ
+生活で大事 地に根を張る
+気になるマイメンをつけてみんなに配る
+最高なshitだ 食って寝てWinしな
+Hahaha 手を挙げてみんなHands up
+肩の力を抜いてゆれな尖ったまま行け
+己を抜け出せ
 
 #### K)
 
@@ -47,7 +55,15 @@ knock knock!!各地にmarking
 
 #### T)
 
-now loading...
+Yo
+Feet lock朝までパーティ
+無理やり朝からゲンキに滑空モーニン
+今日は晴れまだ赤帽子、hats
+掃除機だけ吸い込むホコリ
+コーヒースニーカーブラックで決める
+ジャンクな調子ならマックを決める
+どっちか悩んでるなら腹決めな
+Watch me nowとか言っときなよBoy
 
 #### K)
 
