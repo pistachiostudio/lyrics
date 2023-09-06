@@ -13,7 +13,7 @@ Can I kick it ?? yes you can
 #### T)
 
 Yo
-it's so cool beats お袋でHatch
+磯くんビーツを袋でHatch
 Classic B Sounds 気ままなラップ
 生活で大事 地に根を張る
 気になるマイメンをつけてみんなに配る
