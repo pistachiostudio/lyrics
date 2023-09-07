@@ -8,19 +8,19 @@ Can I kick it ?? yes you can
 鼓膜のそのドア破り落ろす帳  
 夜ならクラシックなブラウンサウンドが連れてくる  
 続けてく、その凝り固まる  
-プライド積み上げる、Be living proof  
+プライド積み上げる、Be living proof
 
 #### T)
 
-Yo
-磯くんビーツを袋でHatch
-Classic B Sounds 気ままなラップ
-生活で大事 地に根を張る
-気になるマイメンをつけてみんなに配る
-最高なshitだ 食って寝てWinしな
-Hahaha 手を挙げてみんなHands up
-肩の力を抜いてゆれな尖ったまま行け
-己を抜け出せ
+イソ君ビートはお袋の味  
+classic b sound 気ままなラッパー  
+生活って大事、地に根を張る  
+木になる、うまい実つけてみんなに配る  
+最高のshitを食って寝て便しな  
+haha手をあげてみなhendsup  
+肩の力をを抜いてゆれな  
+尖ったままいけよ  
+おのれをぬけだせー
 
 #### K)
 
@@ -55,15 +55,15 @@ knock knock!!各地にmarking
 
 #### T)
 
-Yo
-Feet lock朝までパーティ
-無理やり朝からゲンキに滑空モーニン
-今日は晴れまだ赤帽子、hats
-掃除機だけ吸い込むホコリ
-コーヒースニーカーブラックで決める
-ジャンクな調子ならマックを決める
-どっちか悩んでるなら腹決めな
-Watch me nowとか言っときなよBoy
+vidaloca朝までパーティ  
+無理なら朝から元気に行こう  
+good morning  
+今日は晴れ、まどあけ、wash 干す  
+掃除機かけ、すいこむ埃  
+コーヒーとスニーカーはブラックできめる  
+junkな調子ならマックをきめる  
+どっちか悩んでるなら 腹決めな  
+watch me nowとかいっときなよboy
 
 #### K)
 
@@ -72,7 +72,7 @@ This is jammin' free
 come clean 飾り無し無地のTイニシャルはCピーマンMCとは違うword  
 骨なしチキンじゃ食えないライス  
 shout out toマイメン chickin is nice  
-shake hands 始まりの合図  
+shake hands 始まりの合図
 
 #### Hook)
 
